@@ -1,4 +1,4 @@
-Hi there! I'm ManavDhirenbhai Vora 👋
+Hi there! I'm Manav Dhirenbhai Vora 👋
 
 🎓 Academic Profile
 Branch: B.Tech Computer Science & Engineering(Core)
